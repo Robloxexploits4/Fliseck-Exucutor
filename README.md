@@ -1,0 +1,1 @@
+Please Do NOT Turn on your antivirus Again or it will automaticly Delete The file and it will not work on Your windows PC (WINDOWS ONLY) this is a Exucutor and hack for Roblox a Injectable file and the windows ANTIVIRUS will detect it, This is normal With exploits and hacks
